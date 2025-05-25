@@ -1,0 +1,12 @@
+- 👋 Hi, I’m @suhaasvrgowda17
+- 👀 I’m interested in ...Sports,Technical field
+- 🌱 I’m currently persuaving ...B-Tech in VTU,Mysuru
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me ... phn no:7483365814 , email id:vrsg74833@gmail.com
+- 😄 Pronouns: ...He
+- ⚡ Fun fact: ... Tooo fear to talk to girls😁😆😆😝😂😅😅
+
+<!---
+suhaasvrgowda17/suhaasvrgowda17 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+You can click the Preview link to take a look at your changes.
+--->
