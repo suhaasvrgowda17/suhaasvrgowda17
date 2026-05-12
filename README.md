@@ -1,4 +1,5 @@
 # Hi there 👋, I'm V R Suhaas Gowda
+ 😄 Pronouns:He / Him
 
 🚀 About Me
 
@@ -31,11 +32,7 @@
   📧 Email: [vrsuhaasgowda17@gmail.com](mailto:vrsuhaasgowda17@gmail.com)
   📱 Phone: +91 9148891319
 
- 😄 Pronouns:He / Him
 
-⚡ Fun Fact
-
-😅 I’m a bit shy talking to girls… but I always try my level best 😂🔥
 
 ⭐ “Learning never stops when curiosity starts.”
 
